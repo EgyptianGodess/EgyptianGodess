@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EgyptianGodess
-- 👀 I’m interested in science, current events,music, dancing, cooking
+- 👀 I’m interested in science, current events,music,dancing,cooking,singing,sports,fixing the earth to better suit her.
 - 🌱 I’m currently learning computer science😣
 - 💞️ I’m looking to collaborate on, well; alot, ill remember better this time too.
 - 📫 How to reach me M1NativeMayM0@outlook.com
